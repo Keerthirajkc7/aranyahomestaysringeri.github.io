@@ -1,0 +1,1 @@
+# aranyahomestaysringeri.github.io
